@@ -12,4 +12,7 @@
 
 ## Instructions
 
-TODO: these are missing
+- Boil water
+- Boil the rigatoni for 8 minutes
+- Fry the pancetta, mushrooms and onions
+- Mix and enjoy!
