@@ -14,7 +14,7 @@
 - **1** bell pepper, diced
 - **1** small onion, diced
 - **2-3 cloves** garlic, minced
-- **2 tablespoons** olive oil
+- **1 tablespoons** olive oil
 - **Salt and pepper** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
 - **Fresh basil** for garnish (optional)
